@@ -1,0 +1,2 @@
+# PRATIWI
+KIMIA
